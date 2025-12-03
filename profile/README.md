@@ -1,4 +1,4 @@
-# # STEAMRIP » Free Pre-installed Steam Games
+# STEAMRIP » Free Pre-installed Steam Games
 
 ## What is STEAMRIP?
 
